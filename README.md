@@ -1,5 +1,5 @@
 ## Hi there 👋
-I am a furst year BTech-Computer Science Engineering Student at [@UPES]() who aspires to be a software developer in neara future.
+I am a first year BTech-Computer Science Engineering Student at [@UPES]() who aspires to be a software developer in neara future.
 Instagram ID:- [instagram](https://www.instagram.com/vanshika_bhutani_11/)
 Linkedin ID :- [linkedin](https://www.linkedin.com/in/vanshika-bhutani-ba9607334/)
  
