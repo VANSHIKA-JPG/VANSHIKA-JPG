@@ -1,3 +1,4 @@
+![logo](https://github.com/VANSHIKA-JPG/VANSHIKA-JPG/blob/main/WhatsApp%20Image%202025-07-01%20at%2015.31.25_2fd11b4f.jpg)
 <h1 align="center">Hi 👋, I'm VANSHIKA BHUTANI</h1>
 <h3 align="center">Aspiring Software Developer | Learning,Building,Growing</h3>
 
